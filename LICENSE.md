@@ -1,4 +1,4 @@
-
+scary shawarma kiosk hidden Scripts is the best scary shawarma kiosk Script, featuring auto-collect and anti-ban. Safe and powerful for all your
 
 
 
